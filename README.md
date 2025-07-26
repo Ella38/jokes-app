@@ -1,2 +1,2 @@
-skibidi 
-kcndidsldscfdvldksv
+skibidi
+sup humans
